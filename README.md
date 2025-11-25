@@ -1,0 +1,1 @@
+Have fun working on this, nice lunar.gg replica plugin, we don't give support for this plugin. If interested in buying the latest version with fixes and new features contact us @ https://discord.gg/rYctsDu4sb
